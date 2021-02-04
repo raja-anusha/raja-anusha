@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about  mathematics.
 - 📫 How to reach me: rajaanusha@gmail.com 
 - 😄 Pronouns: he,she,it,her,him...
-- ⚡ Fun fact: enjoying with  friends.😍😀
+- ⚡ Fun fact: enjoying with  friends.😍
